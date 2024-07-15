@@ -1,0 +1,1 @@
+# Vectric-Aspire-12.535-Crack
